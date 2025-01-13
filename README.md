@@ -1,14 +1,10 @@
-† uh hi im adam
-★ he/him it/its prns
-† aceflux aro and wife lover!! (bi)
+- my name is adam !
+- i use he/it pronouns, pls try to fluctuate between both !
+- im 15 so dont be weird/srs
+- uh im aromantic and bi and single but im not looking to date so again, dont be weird
+- my timezone is CDT in the midwest 🤠
 
-★ music enthusiast (And One mein liebe..,)
-† i love my wife did i mention that (single, wife/husband = bsf)
-
-★ minor (13-17 int)
-:: under 13 beware of how old i am, 18+ dont be weird but yall chill asf
-
-† german and spanish are the only oyher languages i can make words out of heh
-★ idk get to know me bc im skibidi 😼
-
-uh dont be racist or an animal/child fucker and we good 😋
+- DNI ! : pedos, racists, zoos, weirdos, creeps, etc
+- BFYI ! : i have DIAGNOSED autism, adhd, and anxiety, my texting may be strange, and uhh idk check my strawpage for this shit
+- HFS/FANDOMS ! : DANDYS WORLD, regretavator, the normal elevator, something bad will happen soon, + more idk
+- i like music! like : KoRn, luluyam, AND ONE, msi, and like thousands more heh (i AM #1 AND ONE LOVER!!!)
