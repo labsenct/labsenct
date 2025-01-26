@@ -1,10 +1,7 @@
-- my name is adam !
-- i use he/it pronouns, pls try to fluctuate between both !
-- im 15 so dont be weird/srs
-- uh im aromantic and bi and single but im not looking to date so again, dont be weird
-- my timezone is CDT in the midwest 🤠
+: fyi , just go read my strawpage! :
 
-- DNI ! : pedos, racists, zoos, weirdos, creeps, etc
-- BFYI ! : i have DIAGNOSED autism, adhd, and anxiety, my texting may be strange, and uhh idk check my strawpage for this shit
-- HFS/FANDOMS ! : DANDYS WORLD, regretavator, the normal elevator, something bad will happen soon, + more idk
-- i like music! like : KoRn, luluyam, AND ONE, msi, and like thousands more heh (i AM #1 AND ONE LOVER!!!)
+breakdown:
+- my name is adam, i go by he/it, and im 15
+- i like to draw n listen to music
+- my timezone is CDT and im busy half the time
+- i am not the nicest person unless i like you
