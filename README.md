@@ -1,66 +1,32 @@
-ABOUT ME !!!!!
-
-names ; ADAM or PEANUT
-
-prns ; HE or IT , any if close !
-
-age ; 15 ! [11-06-09]
-
-lang ; ENGLISH + german
+please talk to me if you fw me im begging i want people to talk to omg.
 
 
-:)
+im adam but also go by peanut or phone. (i also have a secret name no one knows about 👀)
 
 
-I AM A(N)...
-
-fictkin ! of MAFIOSO , TWO TIME , AIRY +
-
-therian + furry !
-
-artist ! COMMS OPEN IF CLOSE (RBX)
-
-rotc cadet ! AIRMAN + 9 ribbons
-
-music connoisseur ! AND ONE + BBNO$ 🔛🔝
-
-writter ! privately , procrastinates
-
-juggalo ! I DO NOT SUPPORT ICP !!!
-
-(possible) system ! still figuring it out !
+he/it pronouns, they/them is fine ofc, and ask if you can use she/her (mainly for ppl close to me)
 
 
-^_^
+hyperfixations right now are Forsaken, Cookie Run: Kingdom, and Inanimate Insanity!
 
 
-JUST IN CASE I SEEM WEIRD, IT MAY BE DUE TO... 
-
-autism ; i am diagnosed NEURODIVERGENT and am a high functioning autistic person
-
-disability ; i suffer from disability like Tourettes and Chronic Pain
-
-typing quirks ; i tend to misspell words on purpose or double letters !
-
-social anxiety ; i am diagnosed with GAD (Generalized Anxiety Disorder) and suffer even online 😓
-
-selective mutism ; when i get anxious i go mute ! so dont be afraid to ask me questions to help me get talking !
+my favorite characters are Two Time, Mafioso, Shadow Milk Cookie, Black Forest Cookie, Nickel, Suitcase, Knife, Amechan, Kasane Teto, Sebastian Solace, Applejack, Lilith, and like a bunch more :p
 
 
-:D
+i have mood swings a lot. and am kinda negative to people i dont like. and i may be a little bit of a hypocrite, if you dont fw that, dont be my friend then ??
 
 
-INTERESTS !!!!!!
-
-roblox games ; FORSAKEN , DANDY'S WORLD , dream game / frozen soul , block tales , the robloxia: until dawn , PRESSURE +
-
-other games ; PONY TOWN , COOKIE RUN: KINGDOM , POU +
-
-shows ; HFJONE , INANIMATE INSANITY , animatic battle , ITS TIME FOR THE , hh/hb , good omens , SOUTH PARK +
-PLUS SO MUCH MORE !!!!
+also im a proshipper, i dont speak about it publicly though beyond that warning. if you dont like that, dont interact with me then ?? but no need to harass me. thats stupid.
 
 
-B)
+uhhh what else... uh i do art and i like music and i like bunnies and kitties and birds uhhh..
 
 
-BYE BYE , THANK YOU FOR READING ALL THE WAY THROUGH , THAT MAKES ME VERY HAPPY !!! 🩷🩷🩷🩷🩷🩷🩷🩷🩷OH NO🩷🩷🩷🩷🩷🩷🩷OHM🩷🩷Y GOD🩷🩷🩷🩷🩷🩷🩷T🩷HE HEART🩷🩷🩷S ARE TAKING OV🩷🩷🩷ER!!!!🩷🩷🩷🩷🩷🩷🩷🩷🩷🩷🩷🩷🩷🩷HHEELL🩷🩷PPP🩷PP🩷🩷🩷🩷🩷🩷🩷🩷🩷🩷
+OH and also im a minor. 15. by birthday is November 6th 😋 and im a sophomore in highschool! uhh my favorite class is uhhh... erm. probably ROTC tbh, i love my sargents.
+
+
+
+I AM ONE OF THOSE QUEERS! RAAHHH!! yeah im genderqueer and sapphic, but also aroace but mainly due to trama 💔 
+
+
+okay bye faggatrons. happy pride month and mens mental health month !
