@@ -18,4 +18,5 @@
 
 <p align="center"> 𝐍𝐞𝐮𝐫𝐨𝐃  '  𝐁𝐏𝐃
 
-![1000012915](https://github.com/user-attachments/assets/8e44baee-c862-4286-86ed-97f16b1d9a65)
+![1000013069](https://github.com/user-attachments/assets/831aa175-5b28-485e-9af0-abc8383939e8)
+
