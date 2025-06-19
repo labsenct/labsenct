@@ -1,4 +1,4 @@
- ![](https://github.com/user-attachments/assets/add837b8-8d29-4e09-8775-c35a03cea2cc) 
+<p align="center"> ![](https://github.com/user-attachments/assets/add837b8-8d29-4e09-8775-c35a03cea2cc) 
 
 <p align="center"> “ 𝖭𝗈𝗐 , 𝗁𝗈𝗐 𝗆𝖺𝗇𝗒 𝗆𝖾𝗇 𝗁𝖺𝗏𝖾 𝗒𝗈𝗎 𝗄𝗂𝗌𝗌𝖾𝖽 ? ”
 
