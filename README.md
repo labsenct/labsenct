@@ -1,22 +1,27 @@
- ![](https://github.com/user-attachments/assets/add837b8-8d29-4e09-8775-c35a03cea2cc) 
+$${\color{pink} best   viewed   on   pc }$$
 
-<p align="center"> “ 𝖭𝗈𝗐 , 𝗁𝗈𝗐 𝗆𝖺𝗇𝗒 𝗆𝖾𝗇 𝗁𝖺𝗏𝖾 𝗒𝗈𝗎 𝗄𝗂𝗌𝗌𝖾𝖽 ? ”
+![](https://media.discordapp.net/attachments/1257861951942426696/1387520040001212627/tumblr_fb18c0a234c9a25259f078d4448fcdaf_18ce913a_1280.png?ex=685da43c&is=685c52bc&hm=19b4a47ec03b1199e76730948f8b7671365703b38658d28e74c0802de80cf966&=&format=webp&quality=lossless&width=1692&height=225)
+<div align="center">
+<img src="https://media.discordapp.net/attachments/1257861951942426696/1387520039606812742/Untitled826_20250625144301.png?ex=685da43c&is=685c52bc&hm=266c4ca2a44be98e0d56a7d07bdd99723ca14fff450f14ff95cbeac49456ac05&=&format=webp&quality=lossless&width=750&height=327" alt="graphic">
+</div>
 
-<p align="center">  “ 𝗩𝗲𝗿𝘆 𝗳𝗲𝘄 . “ 
+please read my [linktree](https://linktr.ee/labsenct?utm_source=linktree_profile_share&ltsid=5c5e981a-10ee-4e89-9964-7b5ffdebe741) !!
 
-<p align="center"> “ 𝖡𝗎𝗍 𝗒𝗈𝗎 𝗈𝖿𝖿𝖾𝗋𝖾𝖽 𝗆𝖾 𝖺 𝗄𝗂𝗌𝗌 . . 𝖶𝗁𝗒 ? ”
+<p align="right"> $${\color{pink} c+h   freely   always   unless   stated   otherwise,  i  love  cuddles  and   to   hang   out   most   the   time! }$$
 
-<p align="center">  “ 𝗦𝘂𝗰𝗵 𝗮 𝗳𝗼𝗼𝗹𝗶𝘀𝗵 𝗿𝗲𝗮𝘀𝗼𝗻 , 𝗜'𝗺 𝗮𝗳𝗿𝗮𝗶𝗱 . 𝗜 𝗷𝘂𝘀𝘁 . . 𝘄𝗮𝗻𝘁𝗲𝗱 𝘁𝗼 𝗸𝗶𝘀𝘀 𝘆𝗼𝘂 . ”
+ consider signing my [atabook](https://labsenct.atabook.org) or [strawpage](https://14b53nct.straw.page) ?
 
-![1000012910](https://github.com/user-attachments/assets/0b9576e6-d139-4d1a-99a9-033051d7f8ea)
+ <p align="right"> $${\color{pink} always  whisper  if  i  dont  respond  immediatley }$$
 
-<p align="center"> 𝑨𝐝𝐚𝐦  𝗈𝗋  𝑵𝐢𝐤𝐮𝐨
+ ![](https://media.discordapp.net/attachments/1257861951942426696/1387520040722759700/2nnghe-2.png?ex=685da43c&is=685c52bc&hm=8e4d342915e8b71853f952545da81b1d6f62dc2796fd9d08d1bd283161167930&=&format=webp&quality=lossless&width=1536&height=327)
 
-<p align="center"> 𝐇𝐞 / 𝐈𝐭 𝗈𝗋 𝐀𝐧𝐲
+ <p align="right"> $${\color{pink} i  sign  cool  people's  strawpages/atabooks  ;)}$$
 
-<p align="center"> 𝑮𝐍𝐂  .  𝑨𝐫𝐨𝐚𝐜𝐞 𝑺𝐚𝐩𝐩𝐡𝐢𝐜
+$${\color{pink} any harassment,  death threats,  or  hate  on  my  askbooks  will  be  removed,  and  you  will  be  IP  banned,  so  dont  do   it}$$
 
-<p align="center"> 𝐍𝐞𝐮𝐫𝐨𝐃  '  𝐁𝐏𝐃
+<div align="center">
+<img src="https://media.discordapp.net/attachments/1257861951942426696/1387520672045072445/Untitled827_20250625145125.png?ex=685da4d3&is=685c5353&hm=9e1ac7aea2e7c7cbbf7a9f11ce28fcd8e8bb4715d32781746378ca4747b8ca54&=&format=webp&quality=lossless&width=854&height=770" alt="pt spots">
+</div>
+<p align="right"> $${\color{pink}if  im  not  in  any  of  these  spots,  then  im  most  likely  moving  around  or   with  friends!}$$
 
-![1000013069](https://github.com/user-attachments/assets/831aa175-5b28-485e-9af0-abc8383939e8)
-
+ ![](https://media.discordapp.net/attachments/1257861951942426696/1387520040391151797/tumblr_f08e5478d354ef4aeae010e10efbcf5b_c59bbe61_1280.png?ex=685da43c&is=685c52bc&hm=456307614ecd034f4314b74d9bd67393d417d4c9278952736c7b29f2186ff677&=&format=webp&quality=lossless&width=1692&height=225)
