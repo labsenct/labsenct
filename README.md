@@ -1,4 +1,4 @@
-$${\color{pink} best   viewed   on   pc }$$
+$${\color{pink} best   viewed   on   browser }$$
 
 ![](https://media.discordapp.net/attachments/1257861951942426696/1387520040001212627/tumblr_fb18c0a234c9a25259f078d4448fcdaf_18ce913a_1280.png?ex=685da43c&is=685c52bc&hm=19b4a47ec03b1199e76730948f8b7671365703b38658d28e74c0802de80cf966&=&format=webp&quality=lossless&width=1692&height=225)
 <div align="center">
