@@ -1,6 +1,9 @@
-$${\color{pink} best   viewed   on   browser }$$
+$${\color{pink} WORK   IN   PROGRESS    }$$
 
-![](https://media.discordapp.net/attachments/1257861951942426696/1387520040001212627/tumblr_fb18c0a234c9a25259f078d4448fcdaf_18ce913a_1280.png?ex=685da43c&is=685c52bc&hm=19b4a47ec03b1199e76730948f8b7671365703b38658d28e74c0802de80cf966&=&format=webp&quality=lossless&width=1692&height=225)
+<div align="center">
+  <img src="https://ik.imagekit.io/zrgresdqq/1000013808.png" alt="top">
+</div>
+
 <div align="center">
 <img src="https://media.discordapp.net/attachments/1257861951942426696/1387520039606812742/Untitled826_20250625144301.png?ex=685da43c&is=685c52bc&hm=266c4ca2a44be98e0d56a7d07bdd99723ca14fff450f14ff95cbeac49456ac05&=&format=webp&quality=lossless&width=750&height=327" alt="graphic">
 </div>
