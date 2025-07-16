@@ -16,7 +16,7 @@ $${\color{#483052} BEST   VIEWED   IN   BROWSER   }$$
                      
 ʟɪɴᴋᴛʀᴇᴇ 
 
-<p align="center" ><a href="https://14b53nct.straw.page/"
+<p align="center" ><a href="https://sharkweek.straw.page/"
 
 ꜱᴛʀᴀᴡᴘᴀɢᴇ
 
