@@ -1,12 +1,17 @@
-$${\color{#483052} BEST   VIEWED   IN   BROWSER   }$$
+$${\color{#FF365E} BEST   VIEWED   IN   BROWSER   }$$
 
 <div align="center">
-  <img src="https://ik.imagekit.io/zrgresdqq/1000013808.png" alt="top">
+  <img src="https://media.discordapp.net/attachments/1257861951942426696/1395834863390822561/Untitled932_20250718115124.png?ex=687be404&is=687a9284&hm=ade311291d163f4ce4917460a9d3e018956d6dbcf7b9fb19b2dca60f00e986ac&=&format=webp&quality=lossless&width=1104&height=453" alt="top">
 </div>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/1000013809.png" alt="graphic">
+<img src="https://media.discordapp.net/attachments/1257861951942426696/1395834863743008879/Untitled933_20250718123049.png?ex=687be404&is=687a9284&hm=8da4413dd428fa4c66657a060ffae72aa703d23122bd1eb1568d313eba5959a2&=&format=webp&quality=lossless&width=614&height=614" alt="graphic">
 </div>
+
+<p align="right"> $${\color{#FF365E} ADAM  or  NIKUO  ,  HE/IT   .  NeuroD   +   InFp }$$
+<p align="right"> $${\color{#FF365E} 5TEEN  -  11/06/09  .  ENG/GER/DUT   ,   L,  Q,  E  <3 }$$
+<p align="right"> $${\color{#FF365E} MAFIOSO,  VOX,  TWO  TIME  KIN/IRL }$$
+
 
 <p align="center" ><a href="https://rentry.co/chocolatewedding"
 
@@ -24,23 +29,23 @@ $${\color{#483052} BEST   VIEWED   IN   BROWSER   }$$
 
 ᴀᴛᴀʙᴏᴏᴋ
 
-<p align="right"> $${\color{#483052} c+h   freely   always   unless   stated   otherwise,  i  love  cuddles  and   to   hang   out   most   the   time! }$$
+<p align="right"> $${\color{#FF365E} c+h   freely   always   unless   stated   otherwise,  i  love  cuddles  most   the   time! }$$
 
- <p align="right"> $${\color{#483052} always  whisper  if  i  dont  respond  immediatley }$$
+ <p align="right"> $${\color{#FF365E} always  whisper  if  i  dont  respond  immediatley }$$
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/1000013811.png" alt="divider">
+<img src="https://media.discordapp.net/attachments/1257861951942426696/1395834864074489987/Untitled934.png?ex=687be404&is=687a9284&hm=e48822fee6782123c5bb36814eac38419880b36969f24b9feddd2096d1eddf57&=&format=webp&quality=lossless&width=1104&height=488" alt="divider">
 </div>
 
- <p align="right"> $${\color{#483052} i  sign  cool  people's  strawpages/atabooks  ;)}$$
+ <p align="right"> $${\color{#FF365E} i  sign  cool  people's  strawpages/atabooks  ;)}$$
 
-$${\color{#483052} any harassment,  death threats,  or  hate  on  my  askbooks  will  be  removed,  and  you  will  be  IP  banned,  so  dont  do   it}$$
+$${\color{#FF365E} any   harassment  or  death   threats  on  my  askbooks  will  be  removed,  and  you  will  be  IP  banned}$$
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/1000013813.png?updatedAt=1751583157697" alt="pt spots">
+<img src="https://media.discordapp.net/attachments/1257861951942426696/1395834864632336496/Untitled935.png?ex=687be405&is=687a9285&hm=950a929379c9aa29bb5191a536f39d9afd2aef7124899230f9b317b34bcfbdbb&=&format=webp&quality=lossless&width=818&height=614" alt="pt spots">
 </div>
-<p align="right"> $${\color{#483052}if  im  not  in  any  of  these  spots,  then  im  most  likely  moving  around  or   with  friends!}$$
+<p align="right"> $${\color{#FF365E}if  im  not  in  any  of  these  spots,  then  im  most  likely  moving around  or  with  friends!}$$
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/1000013812.png" alt="bottom">
+<img src="https://media.discordapp.net/attachments/1257861951942426696/1395834865076801656/Untitled936.png?ex=687be405&is=687a9285&hm=205dfa38542d4630ce26b6b481cdc72527beb3656fc66ccb0f04abe003311fa2&=&format=webp&quality=lossless&width=581&height=614" alt="bottom">
 </div>
