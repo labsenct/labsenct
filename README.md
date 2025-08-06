@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://cdn.discordapp.com/attachments/1257383453696069761/1399902651218395279/Untitled969_20250729185249.png?ex=688ab070&is=68895ef0&hm=b2c07764c6e58ac8849ed372755030fe15767c4b8fbd1a48c071fa7b897a152a&" alt="graphic" />
+<img src="https://cdn.discordapp.com/attachments/1257861951942426696/1402779036542832733/Knifecase_GIF.gif?ex=68952748&is=6893d5c8&hm=96d758b4d97178f1fc5f2cdb0000fd4fa79ef7797ebf99063bb18370cd7736f0&" alt="gif" />
 </div>
 
 <p align="center"><a
