@@ -8,9 +8,9 @@ href="https://labsenct.carrd.co/"
 carrd
                     
 <p align="center"><a
-href="https://saudade-of-kalopsia.straw.page"
+href="link"
 
-strawpage
+strawpage (soon)
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
