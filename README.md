@@ -8,9 +8,9 @@ href="https://labsenct.carrd.co/"
 carrd
                     
 <p align="center"><a
-href="link"
+href="https://rustyapple.straw.page"
 
-strawpage (soon)
+strawpage
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
