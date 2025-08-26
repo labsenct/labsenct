@@ -5,14 +5,14 @@
 <p align="center"><a
 href="https://labsenct.carrd.co/"
 
-carrd
+carrd !
                     
 <p align="center"><a
 href="https://fourthward.straw.page"
 
-strawpage
+strawpage !
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
 
-atabook
+atabook !
