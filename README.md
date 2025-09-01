@@ -8,7 +8,7 @@ href="https://labsenct.carrd.co/"
 carrd !
                     
 <p align="center"><a
-href="https://fourthward.straw.page"
+href="https://loganthesquire.straw.page"
 
 strawpage !
 
