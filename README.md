@@ -1,3 +1,6 @@
+<p align="center">
+art by me
+
 <div align="center">
 <img src="https://ik.imagekit.io/zrgresdqq/Untitled1128.png" alt="image" />
 </div>
