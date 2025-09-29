@@ -1,3 +1,8 @@
+<p align="center"><a
+href="https://valken.straw.page"
+
+important. if u care, read all of it.
+
 <p align="center">
 art by me
 
