@@ -14,7 +14,7 @@ art by me
 <p align="center"><a
 href="https://loganthesquire.straw.page"
 
-strawpage !
+strawpage ! (working on new one)
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
@@ -29,4 +29,4 @@ pronouns page !
 <p align="center"><a
 href="https://labsenct.carrd.co/"
 
-carrd !
+carrd ! (may remove soon)
