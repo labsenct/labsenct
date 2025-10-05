@@ -1,7 +1,6 @@
-<p align="center"><a
-href="https://valken.straw.page"
+<p align="center">
 
-callout - dont harass person
+if you're looking for the callout on Elliot, dw, it's been pretty resolved and both parties apologized and owned up to said actions. don't harass anyone of the past issue, thanks.
 
 
 <div align="center">
