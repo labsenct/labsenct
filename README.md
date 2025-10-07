@@ -9,9 +9,9 @@ if you're looking for the callout on Elliot, dw, it's been pretty resolved and b
 
                     
 <p align="center"><a
-href="https://loganthesquire.straw.page"
+href="https://morningcall.straw.page"
 
-strawpage (working on new one)
+strawpage
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
