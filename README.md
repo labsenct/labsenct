@@ -1,6 +1,6 @@
 <p align="center">
 
-if you're looking for the callout on Elliot, dw, it's been pretty resolved and both parties apologized and owned up to said actions. don't harass anyone of the past issue, thanks.
+please dont sexualize Mafioso around me, or at least be private about it, it makes me uncomfortable as a kin. if you self-ship / yumeship with him, respectfully dni. thank you!
 
 
 <div align="center">
@@ -22,3 +22,7 @@ atabook
 href="https://en.pronouns.page/@labsenct"
 
 pronouns page
+
+<p align="center">
+
+if you're looking for the callout on Elliot, dw, it's been pretty resolved and both parties apologized and owned up to said actions. don't harass anyone of the past issue, thanks.
