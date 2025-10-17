@@ -9,7 +9,7 @@ please dont sexualize Mafioso around me, or at least be private about it, it mak
 
                     
 <p align="center"><a
-href="https://morningcall.straw.page"
+href="https://nolibrah.straw.page"
 
 strawpage
 
