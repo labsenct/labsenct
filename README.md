@@ -1,10 +1,10 @@
 <p align="center">
 
-please dont sexualize Mafioso around me, or at least be private about it, it makes me uncomfortable as a kin. if you self-ship / yumeship with him, respectfully dni. thank you!
+i see myself fully as Mafioso, so if you are going to swoon over him, respectfully do that privately. thank you!
 
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1167.png" alt="image" />
+<img src="https://ik.imagekit.io/zrgresdqq/Untitled1188_20251024114837.png" alt="image" />
 </div>
 
                     
@@ -25,4 +25,4 @@ pronouns page
 
 <p align="center">
 
-if you're looking for the callout on Elliot, dw, it's been pretty resolved and both parties apologized and owned up to said actions. don't harass anyone of the past issue, thanks.
+please do not harass anyone that has had issues with me in the past. all issues have been resolved, and i distance myself from those people. please do with this as you will.
