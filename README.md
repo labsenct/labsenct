@@ -4,7 +4,7 @@ i see myself fully as Mafioso, so if you are going to swoon over him, respectful
 
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1188_20251024114837.png" alt="image" />
+<img src="https://ik.imagekit.io/zrgresdqq/0365e3992b64549f14ded384e0d3c49e.gif" alt="image" />
 </div>
 
                     
