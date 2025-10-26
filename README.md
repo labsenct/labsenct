@@ -14,7 +14,7 @@ href="https://labsenct.straw.page"
 makima strawpage
 
 <p align="center"><a
-hred="https://nolibrah.straw.page"
+href="https://nolibrah.straw.page"
 
 noli strawpage
 
