@@ -11,7 +11,12 @@ i see myself fully as Mafioso, so if you are going to swoon over him, respectful
 <p align="center"><a
 href="https://labsenct.straw.page"
 
-strawpage
+makima strawpage
+
+<p align="center"><a
+hred="https://nolibrah.straw.page"
+
+noli strawpage (with gimmick responses!)
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
