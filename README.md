@@ -16,7 +16,8 @@ makima strawpage
 <p align="center"><a
 hred="https://nolibrah.straw.page"
 
-noli strawpage (with gimmick responses!)
+noli strawpage
+↑ (with gimmick responses!)
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
