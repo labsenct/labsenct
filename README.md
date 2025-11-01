@@ -10,7 +10,7 @@ i see myself fully as Mafioso, so if you are going to swoon over him, respectful
 <p align="center"><a
 href="https://doposi.straw.page"
 
-strawpage , remake soon
+strawpage
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
