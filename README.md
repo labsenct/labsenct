@@ -7,16 +7,10 @@ i see myself fully as Mafioso, so if you are going to swoon over him, respectful
 <img src="https://ik.imagekit.io/zrgresdqq/d2967477987c0c013fa5f426a43a0f42.jpg" alt="image" />
 </div>
 
-                    
-<p align="center"><a
-href="https://labsenct.straw.page"
-
-makima strawpage
-
 <p align="center"><a
 href="https://nolibrah.straw.page"
 
-noli strawpage
+strawpage , remake soon
 
 <p align="center"><a
 href="https://labsenct.atabook.org"
