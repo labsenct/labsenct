@@ -1,10 +1,10 @@
 <p align="center">
 
-i see myself fully as Mafioso, so if you are going to swoon over him, respectfully do that privately. thank you!
+please don't sexualize mafioso or alastor around me / keep it private , as i see myself mostly, of not fully, as them, and wish not to see that stuff ! thank you ^_^
 
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/20251030_194620.jpg" alt="image" />
+<img src="https://ik.imagekit.io/zrgresdqq/Untitled1218.png" alt="image" />
 </div>
 
 <p align="center"><a
@@ -24,4 +24,4 @@ pronouns page
 
 <p align="center">
 
-please do not harass anyone that has had issues with me in the past. all issues have been resolved, and i distance myself from those people. please do with this as you will.
+if someone has a problem with me, they need to come to me first and discuss it with me. if there is anyone who you recognize has had past issues with me, just know i distance from those people and wish every party a safe recovery.
