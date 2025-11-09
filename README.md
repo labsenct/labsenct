@@ -8,9 +8,9 @@ be private abt sexualizing who i kin thanks
 </div>
 
 <p align="center"><a
-href="https://doposi.straw.page"
+href="https://doposi.carrd.co/"
 
-strawpage
+carrd
 
 <p align="center"><a
 href="https://en.pronouns.page/@labsenct"
