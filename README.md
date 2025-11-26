@@ -5,11 +5,6 @@
 </div>
 
 <p align="center"><a
-href="https://logmaf.carrd.co/"
+href="https://logmaf.straw.page/"
 
-carrd
-
-<p align="center"><a
-href="https://en.pronouns.page/@labsenct"
-
-pronouns page
+straw
