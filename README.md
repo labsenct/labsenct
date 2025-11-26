@@ -5,7 +5,7 @@
 </div>
 
 <p align="center"><a
-href="https://doposi.carrd.co/"
+href="https://logmaf.carrd.co/"
 
 carrd
 
