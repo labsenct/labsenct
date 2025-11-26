@@ -1,7 +1,7 @@
-<p align="center"> mafioso irl, pls dont sexualize him around me thx </p>
+<p align="center"> mafioso irl, aroace. selec. mute & blunt. blocks freely! dont be weird. </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled825_20250625141053.png" alt="image" />
+<img src="https://ik.imagekit.io/zrgresdqq/20251126_135414.jpg" alt="image" />
 </div>
 
 <p align="center"><a
@@ -13,5 +13,3 @@ carrd
 href="https://en.pronouns.page/@labsenct"
 
 pronouns page
-
-<p align="center"> selective mute and blunt. i rarely block, but i do freely. dont be a creep or drama starter and we chill ok?ok. </p>
