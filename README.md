@@ -1,4 +1,4 @@
-<p align="center"> mafioso irl, aroace. selec. mute & blunt. blocks freely! dont be weird. </p>
+<p align="center"> mafioso & ASSIMILATION irl. mute or selectively mute. artist, MINOR!!!!! MINOR!?!! AAAA!!! </p>
 
 <div align="center">
 <img src="https://ik.imagekit.io/zrgresdqq/Untitled1268_20251210204928.png" alt="image" />
