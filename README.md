@@ -1,4 +1,4 @@
-<p align="center"> mafioso & ASSIMILATION irl. mute or selectively mute. artist, MINOR!!!!! MINOR!?!! AAAA!!! </p>
+<p align="center"> mafioso or logan, 6teen. any or no pronouns, aroace & lesbian ! </p>
 
 <div align="center">
 <img src="https://ik.imagekit.io/zrgresdqq/Untitled1269_20251211095653.png" alt="image" />
