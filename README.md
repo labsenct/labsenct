@@ -1,7 +1,7 @@
 <p align="center"> mafioso & ASSIMILATION irl. mute or selectively mute. artist, MINOR!!!!! MINOR!?!! AAAA!!! </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1268_20251210204928.png" alt="image" />
+<img src="https://ik.imagekit.io/zrgresdqq/Untitled1269_20251211095653.png" alt="image" />
 </div>
 
 </p>
