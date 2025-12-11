@@ -1,7 +1,7 @@
 <p align="center"> mafioso irl, aroace. selec. mute & blunt. blocks freely! dont be weird. </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/20251126_135414.jpg" alt="image" />
+<img src="https://ik.imagekit.io/zrgresdqq/Untitled1268_20251210204928.png" alt="image" />
 </div>
 
 </p>
