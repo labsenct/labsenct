@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  <a href="https://rentry.co/arthr0p0da">rentry</a>
+   <a href="https://rentry.co/arthr0p0da">rentry</a>
   <a href="https://colormytree.me/2025/01JEGX3JNJZ0GDC4MVH6BAR7AD">color my tree</a> ⠀
   <a href="https://labsenct.atabook.org/">ata</a> ⠀
 </p>
