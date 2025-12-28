@@ -1,7 +1,7 @@
 <p align="center">　　Ი𐑼 mafioso or logan, 6teen. any or no pronouns, aroace & lesbian ! </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1269_20251211095653.png" alt="image" />
+<img src="https://files.catbox.moe/96ewog.png" alt="image" />
 </div>
 
 </p>
