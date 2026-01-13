@@ -1,4 +1,4 @@
-<p align="center">　　Ი𐑼 logan or mafi " 6teen. aroace ; multifandom ! ```G,D,L,L``` </p>
+<p align="center">　　Ი𐑼 logan or mafi " 6teen. aroace ; multifandom ! ```G,D,N,K``` </p>
 
 <div align="center">
 <img src="https://files.catbox.moe/96ewog.png" alt="image" />
