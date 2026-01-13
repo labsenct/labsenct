@@ -9,3 +9,9 @@
   <a href="https://rentry.co/arthr0p0da">rentry</a>   ⠀
   <a href="https://labsenct.atabook.org/">atabook</a> ⠀
 </p>
+
+<div align="center">
+<img src="https://files.catbox.moe/epqcfr.png" alt="image" />
+</div>
+
+<p align="center"> i use ibis paint x, and the lasso tool! i also add overlays like paper texture! ^_^ also tysm!! </p>
