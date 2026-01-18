@@ -1,7 +1,7 @@
-<p align="center">　　Ი𐑼 logan or finn " 6teen. aroace ; multifandom ! ```G,D,N,K``` </p>
+<p align="center">　　🫧 logan or finn " 6teen. aroace ; mute ! [G,D,N,K] </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/96ewog.png" alt="image" />
+<img src="https://files.catbox.moe/0m8usc.png" alt="image" />
 </div>
 
 </p>
@@ -10,6 +10,8 @@
   <a href="https://labsenct.atabook.org/">atabook</a> ⠀
   <a href="https://finagan.straw.page">strawpage</a> ⠀
 </p>
+
+
 
 <div align="center">
 <img src="https://files.catbox.moe/epqcfr.png" alt="image" />
