@@ -1,7 +1,7 @@
-<p align="center">　　🍓 logan or finn " 6teen. aroace ; mute ! semi-active </p>
+<p align="center">　　🎏 logan or finn " 6teen. aroace ; mute ! semi-active 🐠 </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/i2zx30.png" alt="image" />
+<img src="https://files.catbox.moe/0wisok.png" alt="image" />
 </div>
 
 </p>
