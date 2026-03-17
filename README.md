@@ -7,5 +7,5 @@
 </p>
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">𐌀tabook</a> ⠀⠀
-  <a href="https://visionberry.straw.page">𐌔trawpage</a> ⠀
+  <a href="https://finnwilikers.straw.page">𐌔trawpage</a> ⠀
 </p>
