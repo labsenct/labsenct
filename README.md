@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">⠀
-  <a href="https://labsenct.atabook.org/">𐌀tabook</a> ⠀ ⠀
+  <a href="https://labsenct.atabook.org/">𐌀tabook</a> ⠀ 
   <a href="https://finnwilikers.straw.page">𐌔trawpage</a>  ⠀
   <a href="https://rentry.co/finnwilikers">𐌓entry</a>  ⠀
 </p>
