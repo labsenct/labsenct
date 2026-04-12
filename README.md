@@ -1,7 +1,7 @@
-<p align="center">　︶︶︶　🎏  𐌋ogan , 𐌅inn or 𐌋ake﹗16　ノ 𐌀ro𐌀ce　˚̣̣̣  𐌌ute ᵃⁿᵈ  𐌔emi-𐌀ctive 🐠 ︵︵︵</p>
+<p align="center">　︶︶︶　🏝️  𐌋ogan , 𐌅inn or 𐌋ake﹗16　ノ 𐌀ro𐌀ce　˚̣̣̣  𐌌ute ᵃⁿᵈ  𐌔emi-𐌀ctive 🫧 ︵︵︵</p>
 
 <div align="center">
-<img src="https://files.catbox.moe/7tfvx1.png" alt="image" />
+<img src="https://ik.imagekit.io/ctyynkgxa/Untitled1469_20260412011425.png" alt="image" />
 </div>
 
 </p>
