@@ -9,14 +9,7 @@
 </p>
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">𐂯ྀི Book  !</a> ⠀
-<p align="center"> . </p>
- 
   <a href="https://finnwilikers.straw.page"> ཻུ۪♡ Straw !</a> 
- ⠀p align="center"> . </p>
-
   <a href="https://guns.lol/labsenct"> ྀི⨟ Guns.Lol !</a> 
-
-p align="center"> . </p>
- ⠀
   <a href="https://rentry.co/finnwilikers">𓏶ྀ Rentry !</a> 
- ⠀p align="center"> . </p>
+</p>
