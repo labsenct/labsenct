@@ -17,5 +17,3 @@
 p align="center"> . </p>
  ⠀
   <a href="https://rentry.co/finnwilikers">𓏶ྀ Rentry !</a>  ⠀p align="center"> . </p>
-
-</p>
