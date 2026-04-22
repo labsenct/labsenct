@@ -1,12 +1,15 @@
-<p align="center">　︶︶︶　🏝️  𐌋ogan , 𐌅inn or 𐌋ake﹗16　ノ 𐌀ro𐌀ce　˚̣̣̣  𐌌ute ᵃⁿᵈ 𐌂ud𐌂omf ! 🫧 ︵︵︵</p>
+<p align="center">　.　.　.　 </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/ctyynkgxa/Untitled1469_20260412011425.png" alt="image" />
+<img src="https://litter.catbox.moe/13mb6deahd9fpxqw.png" alt="image" />
 </div>
+
+<p align="center">　𓏶ྀི  or Finn / Lake⠀  ౨౿  G, N, D, L, A, K⠀‹𝟹         💐         𓉸ྀི  Aroace & Genderqueer   𐚁᭢༘۠    CudComf! ♪ྀི </p>
 
 </p>
 <p align="center">⠀
-  <a href="https://labsenct.atabook.org/">𐌀tabook</a> ⠀ 
-  <a href="https://finnwilikers.straw.page">𐌔trawpage</a>  ⠀
-  <a href="https://rentry.co/finnwilikers">𐌓entry</a>  ⠀
+  <a href="https://labsenct.atabook.org/">𐂯ྀི Book  !</a> ⠀ 
+  <a href="https://finnwilikers.straw.page"> ཻུ۪♡ Straw !</a>  ⠀
+  <a href="https://guns.lol/labsenct"> ྀི⨟ Guns.Lol !</a>  ⠀
+  <a href="https://rentry.co/finnwilikers">𓏶ྀ Rentry !</a>  ⠀
 </p>
