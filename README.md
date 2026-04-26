@@ -1,7 +1,7 @@
 <p align="center">　.　.　.　 </p>
 
 <div align="center">
-<img src="https://litter.catbox.moe/13mb6deahd9fpxqw.png" alt="image" />
+<img src="https://files.catbox.moe/amqnu4.png" alt="image" />
 </div>
 
 <p align="center">　𓏶ྀི  or Finn / Lake⠀  ౨౿  
