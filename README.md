@@ -12,5 +12,5 @@
   <a href="https://labsenct.atabook.org/">𐂯ྀི Book  !</a>　
   <a href="https://finnwilikers.straw.page"> ཻུ۪♡ Straw !</a>　
   <a href="https://finnagan.carrd.co/"> ྀི⨟ Carrd !</a>　
-  <a href="https://rentry.co/finnwilikers">𓏶ྀ Rentry !</a>　
+  <a href="https://rentry.co/labsenctcomms">𓏶ྀ Comms !</a>　
 </p>
