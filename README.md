@@ -9,7 +9,7 @@
 </p>
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">atabook</a>　
-  <a href="https://packofcrayons.straw.page">strawpage</a>　
+  <a href="https://tunalab.straw.page">strawpage</a>　
   <a href="https://finnagan.carrd.co/">carrd</a>　
   <a href="https://rentry.co/labsenctcomms">comms</a>　
 </p>
