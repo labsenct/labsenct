@@ -4,7 +4,8 @@
 <img src="https://files.catbox.moe/053erm.png" alt="image" />
 </div>
 
-<p align="center"> 🪷 16 yro , aroace ± lesbian. huge nature lover and zoology nerd. big big big finn kin (along w/ vee, sprout, ginger, and flutter) ☘️ </p>
+<p align="center"> 𓆝 𓆟 𓆞 16 , native & german ꪆৎ ☘️ </p>
+<p align="center"> ⭑𓂃 finn irl .ೀ audhd + mdd ⋆｡𖦹 ˚ 𓇼 </p>
 
 </p>
 <p align="center">⠀
