@@ -1,10 +1,10 @@
 <p align="center"> ” you'll never get that fucking tarnish off your name “ </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/053erm.png" alt="image" />
+<img src="https://files.catbox.moe/es1bjg.png" alt="image" />
 </div>
 
-<p align="center"> 𓆝 𓆟 𓆞 16 , native & german ꪆৎ ☘️ </p>
+<p align="center"> 𓆝 𓆟 𓆞 16 , native & german ꪆৎ 🫧 </p>
 <p align="center"> ⭑𓂃 finn irl .ೀ audhd + mdd ⋆｡𖦹 ˚ 𓇼 </p>
 
 </p>
