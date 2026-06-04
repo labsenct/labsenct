@@ -1,4 +1,4 @@
-<p align="center"> ” you'll never get that fucking tarnish off your name “ </p>
+<p align="center"> ” now, im, where i wanna be and who i want to be and doing what i always said i would and yet i feel i haven't won at all ! “ </p>
 
 <div align="center">
 <img src="https://files.catbox.moe/es1bjg.png" alt="image" />
