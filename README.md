@@ -14,7 +14,7 @@
 ${
 \color{#669900}𓆝 𓆟 𓆞 16 ,\
 \color{#75b000}native+german\
-\color{#97e300}ꪆৎ 🫧\
+\color{#97e300}ꪆৎ 🧪\
 \color{#75b000}pronouns .\
 }$
 </p>
