@@ -1,11 +1,34 @@
-<p align="center"> ” now, im, where i wanna be and who i want to be and doing what i always said i would and yet i feel i haven't won at all ! “ </p>
+<p align="center"> 
+ <img src="https://komarev.com/ghpvc/?username=labsenct&color=669900&style=Zen+Old+Mincho&duration=flat&label=⋆˚꩜｡"/>
+
+<p align="center">
+
+<p align="center">art by me ! </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/es1bjg.png" alt="image" />
+<img src="https://ik.imagekit.io/ctyynkgxa/mytwistedfinnpng.webp" alt="image" />
 </div>
 
-<p align="center"> 𓆝 𓆟 𓆞 16 , native & german ꪆৎ 🫧 </p>
-<p align="center"> ⭑𓂃 finn irl .ೀ audhd + mdd ⋆｡𖦹 ˚ 𓇼 </p>
+</div>
+<p align="center">
+${
+\color{#669900}𓆝 𓆟 𓆞 16 ,\
+\color{#75b000}native+german\
+\color{#97e300}ꪆৎ 🫧\
+\color{#75b000}pronouns .\
+}$
+</p>
+
+</div>
+<p align="center">
+${
+\color{#669900}⭑𓂃 \
+\color{#75b000}finn-irl .ೀ\
+\color{#97e300}audhd + mdd\
+\color{#75b000}⋆｡𖦹 ˚\
+\color{#669900}𓇼\
+}$
+</p>
 
 </p>
 <p align="center">⠀
