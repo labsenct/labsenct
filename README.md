@@ -28,7 +28,7 @@ ${
 <p align="center">
 ${
 \color{#0077b9}⭑𓂃 \
-\color{#6ebbdc}finn-irl .ೀ\
+\color{#6ebbdc}fictkin .ೀ\
 \color{#b2dbec}audhd + mdd\
 \color{#6ebbdc}⋆｡𖦹 ˚\
 \color{#0077b9}𓇼\
