@@ -1,37 +1,37 @@
 <p align="center"> 
- <img src="https://komarev.com/ghpvc/?username=labsenct&color=0077b9&style=Zen+Old+Mincho&duration=flat&label=⋆˚꩜｡"/>
+ <img src="https://komarev.com/ghpvc/?username=labsenct&color=d44a20&style=Zen+Old+Mincho&duration=flat&label=´ཀ`"/>
 
 <p align="center">
 
 </div>
 <p align="center">
 ${
-\color{#dafefe}graphic️️ by️️ me\
+\color{#ffeea1}graphic️️ by️️ me\
 }$
 </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/ctyynkgxa/gyygjguu.webp" alt="image" />
+<img src="https://files.catbox.moe/n3so8c.webp" alt="image" />
 </div>
 
 </div>
 <p align="center">
 ${
-\color{#0077b9}𓆝 𓆟 𓆞 16 ,\
-\color{#6ebbdc}native+german\
-\color{#b2dbec}ꪆৎ 🧿\
-\color{#0077b9}c+h.enc\
+\color{#fba157}⋮ ⌗ ┆ 2spirit ,\
+\color{#fbd975}native+german\
+\color{#ffeea1}.✦ ݁˖\
+\color{#fba157}c+h.enc\
 }$
 </p>
 
 </div>
 <p align="center">
 ${
-\color{#0077b9}⭑𓂃 \
-\color{#6ebbdc}fictkin .ೀ\
-\color{#b2dbec}audhd + mdd\
-\color{#6ebbdc}⋆｡𖦹 ˚\
-\color{#0077b9}𓇼\
+\color{#fba157} ⏾⋆.˚ \
+\color{#fbd975}fictkin .ೀ\
+\color{#ffeea1}audhd + mdd\
+\color{#fbd975} ֺּׅ𓏽⑅ \
+\color{#fba157}𓏵‧₊˚ ┊\
 }$
 </p>
 
@@ -44,6 +44,6 @@ ${
 </p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ibqlrcaazloqlin4iuhw53wf4y&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ibqlrcaazloqlin4iuhw53wf4y&cover_image=true&theme=default&show_offline=true&background_color=️️dafefet&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ibqlrcaazloqlin4iuhw53wf4y&cover_image=true&theme=novatorem&show_offline=true&background_color=️️ffeea1&interchange=true&profanity=false&hide_remaster=false&bar_color=d44a20&bar_color_cover=true">
   </a>
 </p>
