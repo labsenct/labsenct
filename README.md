@@ -11,7 +11,7 @@ ${
 </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/n3so8c.webp" alt="image" />
+<img src="https://ik.imagekit.io/ctyynkgxa/Untitled1682_20260715164911.png" alt="image" />
 </div>
 
 </div>
