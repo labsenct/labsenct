@@ -39,7 +39,7 @@ ${
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">atabook</a>　
   <a href="https://yuricide.straw.page">strawpage</a>　
-  <a href="https://finnagan.carrd.co/">carrd</a>　
+  <a href="https://disuacarded.carrd.co/">carrd</a>　
   <a href="https://en.pronouns.page/@labsenct">prns page</a>　
 </p>
 <p align="center">
