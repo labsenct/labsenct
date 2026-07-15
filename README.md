@@ -1,12 +1,12 @@
 <p align="center"> 
- <img src="https://komarev.com/ghpvc/?username=labsenct&color=d44a20&style=Zen+Old+Mincho&duration=flat&label=´ཀ`"/>
+ <img src="https://komarev.com/ghpvc/?username=labsenct&color=99c0ff&style=Zen+Old+Mincho&duration=flat&label=´ཀ`"/>
 
 <p align="center">
 
 </div>
 <p align="center">
 ${
-\color{#ffeea1}graphic️️ by️️ me\
+\color{#e6efff}graphic️️ by️️ me\
 }$
 </p>
 
@@ -17,21 +17,21 @@ ${
 </div>
 <p align="center">
 ${
-\color{#fba157}⋮ ⌗ ┆ 2spirit ,\
-\color{#fbd975}native+german\
-\color{#ffeea1}.✦ ݁˖\
-\color{#fba157}c+h.enc\
+\color{#5882c7}⋮ ⌗ ┆ 2spirit ,\
+\color{#99c0ff}native+german\
+\color{#e6efff}.✦ ݁˖\
+\color{#5882c7}c+h.enc\
 }$
 </p>
 
 </div>
 <p align="center">
 ${
-\color{#fba157} ⏾⋆.˚ \
-\color{#fbd975}fictkin .ೀ\
-\color{#ffeea1}audhd + mdd\
-\color{#fbd975} ֺּׅ𓏽⑅ \
-\color{#fba157}𓏵‧₊˚ ┊\
+\color{#5882c7} ⏾⋆.˚ \
+\color{#98c0ff}fictkin .ೀ\
+\color{#e6efff}audhd + mdd\
+\color{#98c0ff} ֺּׅ𓏽⑅ \
+\color{#5882c7}𓏵‧₊˚ ┊\
 }$
 </p>
 
