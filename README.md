@@ -6,12 +6,12 @@
 </div>
 <p align="center">
 ${
-\color{#e6efff}graphic️️ by️️ me\
+\color{#e6efff}inactive ┊ during ┊ weekdays\
 }$
 </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/ctyynkgxa/Untitled1682_20260715164911.png" alt="image" />
+<img src="https://files.catbox.moe/vc4ete.gif" alt="image" />
 </div>
 
 </div>
@@ -38,8 +38,8 @@ ${
 </p>
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">atabook</a>　
-  <a href="https://yuricide.straw.page">strawpage</a>　
-  <a href="https://disuacarded.carrd.co/">carrd</a>　
+  <a href="https://clipp.straw.page">strawpage</a>　
+  <a href="https://rentry.co/disuacarded">rentry</a>　
   <a href="https://en.pronouns.page/@labsenct">prns page</a>　
 </p>
 <p align="center">
