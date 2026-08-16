@@ -28,7 +28,7 @@ ${
 <p align="center">
 ${
 \color{#5882c7} ⏾⋆.˚ \
-\color{#98c0ff}fictkin .ೀ\
+\color{#98c0ff}6teen .ೀ\
 \color{#e6efff}audhd + mdd\
 \color{#98c0ff} ֺּׅ𓏽⑅ \
 \color{#5882c7}𓏵‧₊˚ ┊\
