@@ -6,12 +6,12 @@
 </div>
 <p align="center">
 ${
-\color{#e6efff}inactive ┊ during ┊ weekdays\
+\color{#e6efff}art ┊ by ┊ me\
 }$
 </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/vc4ete.gif" alt="image" />
+<img src="https://files.catbox.moe/wp1fn5.png" alt="image" />
 </div>
 
 </div>
