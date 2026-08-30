@@ -38,7 +38,7 @@ ${
 </p>
 <p align="center">⠀
   <a href="https://labsenct.atabook.org/">atabook</a>　
-  <a href="https://clipp.straw.page">strawpage</a>　
+  <a href="https://krogan.straw.page">strawpage</a>　
   <a href="https://rentry.co/disuacarded">rentry</a>　
   <a href="https://en.pronouns.page/@labsenct">prns page</a>　
 </p>
